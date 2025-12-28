@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-I'm currently work at kvanta labs pvt. Ltd.<br>I'm looking to collaborate on kvantalabs<br>
+I'm currently work at kvanta labs pvt. Ltd.
 
 
 ## 🌐 Socials:
